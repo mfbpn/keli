@@ -1,6 +1,6 @@
 # 可莉机场官网地址
 
-最新地址：[可莉.com](https://2.xn--jprs12i.com/auth/register?code=XGVd)
+最新地址：[可莉.com](https://xn--jprs12i.com/#/register?code=uMjty7oP)
 
 ## 可莉机场简介
 
